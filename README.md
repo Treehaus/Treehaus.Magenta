@@ -1,2 +1,0 @@
-# Treehaus.Magenta
-Art Department
